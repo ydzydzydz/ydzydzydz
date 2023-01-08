@@ -13,5 +13,5 @@
 
 ✈️ 电报：[@YDZ123456](https://t.me/ydz123456)
 
-📩 邮件：[bWFpbEB6aHVhbmd6aHVhbmcubWwK](mailto:mail@zhuangzhuang.ml)
+📩 邮件：[bWFpbEB6aHVhbmd6aGF1bmcuaW8K](mailto:mail@zhuangzhuang.io)
 
